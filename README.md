@@ -17,7 +17,7 @@ Utilizei o "ChatGPT" para me ajudar a fazer um ebook motivacional com foco em tr
 ## Link
 <https://drive.google.com/drive/my-drive?hl=pt-br> 
 
-## 💭 Reflexão (Opcional)
+## 💭 Conclusão
 O e-book apresenta um conteúdo envolvente e visualmente rico e também de um ponto de vista muito diferente. 
 
 
